@@ -1,4 +1,4 @@
-
+Get the ultimate Todoist for macOS integration with smart Todoist for macOS Integration | quick search + dark mode. Featuring quick search and dark mode, it's the best choice for
 
 
 
